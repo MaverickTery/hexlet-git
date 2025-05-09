@@ -1,1 +1,0 @@
-Redcat is fool
